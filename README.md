@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Seyedeh Zahra Mousavi Qeydari
+- 👀 I’m interested in Agricultural extension training
+- 🌱 I’m currently learning Agricultural extension training at University of Tehran
+- 💞️ I’m looking to collaborate on IoT, Agricultural machinery and ...
+- 📫 Reach me through: zahra.mousavi67@ut.ac.ir (School mail)
+- 😄 Pronouns: she/her
